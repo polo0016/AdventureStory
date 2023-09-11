@@ -7,5 +7,3 @@ What should Sammy do to protect his magical tail?
 Option 1: Hide in a tower 
 Option 2: Call for help
 
- Call for help
-Without wasting a moment, Sammy scampered to Larry the tree and told him about Rufus's intentions. Larry, grateful to Sammy for the golden leaf and transformation, decided to help. Using his deep roots, Larry sent a message throughout the Enchanted Forest, calling upon Sammy's friends.
