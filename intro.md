@@ -3,3 +3,6 @@ Once upon a time in the Enchanted Forest, there was a squirrel named Sammy who h
 News of Sammy's power spread, attracting friends and envious creatures. One day, a raven named Rufus wanted Sammy's tail.
 
 What should Sammy do to protect his magical tail? 
+
+
+She hids into a tower for the rest of her life 
