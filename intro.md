@@ -4,6 +4,5 @@ News of Sammy's power spread, attracting friends and envious creatures. One day,
 
 What should Sammy do to protect his magical tail? 
 
-Option 1: Hide in a tower 
-Option 2: Call for help
+
 
